@@ -1,0 +1,1 @@
+# tarixiy_kinolar_policy
